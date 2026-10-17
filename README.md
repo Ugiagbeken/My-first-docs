@@ -1,6 +1,6 @@
-# How to make (Beans )
+# How to make (Beans)
 
-(beans.jpg)
+(beans.)jpg
 
 Ingredients 
 - 2Cups of Beans
